@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: email: horn.jiao@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Stillllllllllllllll in school
+- ⚡ Fun fact: still in school
 - Guess where I'm from! ^^
 
 <!---
